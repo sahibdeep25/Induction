@@ -1,5 +1,20 @@
 # My Experience - GNDEC
 
+# Day 1 of college induction program
+
+My First Day at GNDEC – A Day to Remember
+The first day of college didn’t feel like just the start of classes; it felt like the beginning of something much deeper. We started our day at the college Gurdwara Sahib, surrounded by peace and positivity. The sound of bhajans like “Dhan Dhan Guru Anant Sahib Ji” and “Guru Ramdas Rakho Sharnayi” made the atmosphere calm and comforting. But when “ਤੂੰ ਮਾਤ-ਪਿਤਾ ਹਮ ਬਾਲਕ ਤੇਰੇ” was sung, I actually got goosebumps. It reminded me that no matter what, I am never alone in this journey. After prayers and saying “Waheguru Ji Ka Khalsa, Waheguru Ji Ki Fateh,” we received Kadah Prasad, which added sweetness to the moment.
+
+After this, we walked to Hostel No. 2 for refreshments and got our first casual look at the campus. Later, we moved to the college auditorium for an important session. There, we listened to many inspiring speeches. One speaker told us the history of GNDEC—how the people of Gill Pind donated land and worked together to build this college for future generations. It made me feel proud to be part of such a meaningful place.
+
+A senior professor spoke about why college is a sacred space and why we should maintain discipline and respect. Dr. Harpreet Kaur Grewal gave a motivating talk, asking us to stay away from negativity, stay spiritual, and build self-discipline. Her words felt like advice from a friend, not a formal speech. Our Principal, Dr. Sehijpal Singh, also shared an important thought: Whatever branch you have, respect it and love your field. The chief guest, S. Maheshinder Singh Grewal, shared stories of his family’s strong connection with GNDEC and told us about an alumnus who now works at Boeing. It was truly inspiring!
+
+After a short break, during which I learned about NCC (and secretly wished to join it one day), we were divided into groups and taken to our departments. Our group visited the ECE department, where we saw the labs and classrooms.
+
+This first day was not just an introduction to college—it was a day full of learning, values, and inspiration. I realized that GNDEC is not just a college; it’s a community of people who care, who dream, and who believe in excellence. I will always remember this day as the starting point of my amazing journey ahead.
+
+
+
 # Day 2 of college induction program
 Day 2 of the College Induction Program began with a warm welcome from the faculty, followed by an interactive session.
 We participated in an English proficiency test — a fun and insightful way to assess our language skills and get a feel for the academic journey ahead!
