@@ -35,3 +35,4 @@ She gave interactive session on right understanding, physical facility and relat
 With this amazing lesson , she finished her session . 
 After all this , HOD Harpreet Kaur mam guided the students to do hard work , learn new concepts and attend all the important sessions . 
 With all this we ended with all te sessions and rushed out of the auditorium . 
+# Day 4 of college induction program 
