@@ -36,3 +36,14 @@ With this amazing lesson , she finished her session .
 After all this , HOD Harpreet Kaur mam guided the students to do hard work , learn new concepts and attend all the important sessions . 
 With all this we ended with all te sessions and rushed out of the auditorium . 
 # Day 4 of college induction program 
+On the day 4 of college induction program , all the students gathered in the TCC Seminar Hall according to thier schedule . Our first interaction was with the DR. Rajvir Kaur Mam , who was having our chemistry session . We started with an interactive session . Dr. Rajvir Kaur ma’am made the session truly engaging by sparking curiosity about the future of engineering. She didn’t just talk about general knowledge – she asked questions, shared real-life examples, and made us think about what skills will matter most in the coming years. From problem-solving and critical thinking to adaptability and innovation, her words reminded us that being an engineer is not just about technical knowledge, but about being creative, curious, and ready to learn every day. She really encouraged the students to solve real life problems and focus more on the skills than only the theory. 
+
+
+
+
+
+
+
+
+
+
