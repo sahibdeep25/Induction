@@ -37,13 +37,6 @@ After all this , HOD Harpreet Kaur mam guided the students to do hard work , lea
 With all this we ended with all te sessions and rushed out of the auditorium . 
 # Day 4 of college induction program 
 On the day 4 of college induction program , all the students gathered in the TCC Seminar Hall according to thier schedule . Our first interaction was with the DR. Rajvir Kaur Mam , who was having our chemistry session . We started with an interactive session . Dr. Rajvir Kaur ma’am made the session truly engaging by sparking curiosity about the future of engineering. She didn’t just talk about general knowledge – she asked questions, shared real-life examples, and made us think about what skills will matter most in the coming years. From problem-solving and critical thinking to adaptability and innovation, her words reminded us that being an engineer is not just about technical knowledge, but about being creative, curious, and ready to learn every day. She really encouraged the students to solve real life problems and focus more on the skills than only the theory. 
-
-
-
-
-
-
-
-
-
-
+After her session our seniors we having a peer to peer session with us. That was an amazing peer-to-peer session with our seniors that felt more like a friendly conversation than a formal class. They shared their personal experiences—what worked for them, what challenges they faced—and it was so relatable. The best part? They introduced us to the basics of C++ programming in such a simple and practical way. Instead of just theory, they gave us tips and tricks that only come from real experience. It was motivating to learn from people who were once like us and are now doing great!
+After that, we enjoyed a refreshing one-hour break—a perfect chance to relax and recharge. Some of us grabbed a quick snack, others chatted with friends, and a few even explored the campus. It was a fun little pause before diving back into the next session, giving everyone time to unwind and get ready for more learning!
+After the break, Dr. Priya Darshini ma’am took us through an incredibly engaging session on Universal Human Values. Instead of just lecturing, she made it interactive by asking us to reflect on our own lives—our aspirations, our concerns, and what truly makes us happy. We discussed the difference between excitement and real happiness, and how harmony within ourselves and with others plays a big role. She explained that happiness isn’t about material things but about right understanding, good relationships, and the right use of physical resources. The session left us thinking deeply about how we can live in harmony at all levels—self, family, society, and nature. It was eye-opening and truly thought-provoking!
