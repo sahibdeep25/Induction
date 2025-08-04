@@ -47,3 +47,7 @@ After the break, Dr. Priya Darshini ma’am took us through an incredibly engagi
 After Dr. Priya Darshini ma’am’s thought-provoking session, the atmosphere shifted to something lively and fun as the members of the Causmic Club took over the stage. They introduced us to the various clubs of the college in such an exciting way that it felt more like a celebration than an introduction.
 
 One member strummed the guitar and sang a soulful song that instantly set the vibe. Another charmed everyone with their melodious voice, leaving the audience mesmerized. And then came a beautiful touch of poetry—a heartfelt shayari that had everyone clapping in appreciation. The energy in the room was electric, and it truly gave us a glimpse of the talent and vibrant culture waiting for us on campus!
+
+After the performances, one of our teachers grabbed our attention with a super useful session on what to check before buying a laptop. Instead of just listing points, the discussion felt like a friendly conversation where we could ask our doubts freely.
+
+They explained important factors like processor speed, RAM, storage type (HDD vs SSD), battery backup, and even the weight for portability. We also learned why the operating system matters and how to choose based on our needs—whether for programming, gaming, or everyday use. The best part? They shared practical tips on avoiding common mistakes students make, like focusing only on looks instead of performance. It was one of those sessions where everyone was secretly making a mental checklist for their future laptop!
