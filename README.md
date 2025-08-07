@@ -98,7 +98,7 @@ As the lectures came to an end, so did the day. It had been a perfect blend of p
 
 We left the auditorium with tired feet but curious minds, ready to take on whatever the next day had in store.
 
-# DAY 6 of college induction 
+# DAY 7 of college induction 
 
 As the day continued, we had an informative session with Dr. Randhir Singh Sir, who spoke to us about the conduction of college examinations. He explained the entire process—from internal assessments to final exams—and highlighted the importance of consistency, attendance, and preparation. His clear and structured explanation helped clear a lot of doubts and gave us a better idea of how to stay on track throughout the semester.
 
