@@ -73,3 +73,49 @@ Prof. Mandeep also gave us an idea of how these basics would later connect to mo
 
 As we packed up and left for the day, there was a quiet sense of progress in the air. Another day ticked off in our college journey, and we were one step closer to becoming more confident and capable.
 
+# DAY 6 of college induction 
+
+Another day began with a spark of excitement as we gathered in the Workshop Seminar Hall. This time, the session had a different vibe—it was a peer-to-peer interaction led by our seniors.
+
+They welcomed us with friendly smiles and quickly made the environment feel relaxed and open. The session focused on the basics of C++ programming, and to our surprise, it wasn’t as intimidating as it sounded.
+
+The seniors patiently walked us through simple syntax—like writing our first program, understanding #include, cout, cin, and how to use variables. They explained everything in a way that made it easy to understand, even for those who had never coded before.
+
+What made it even better was how approachable they were. We could ask questions freely, and they shared their own beginner experiences, which made us feel more confident about starting our programming journey.
+
+
+After the peer-to-peer session, we had a short but insightful lecture by Prof. Jaswant Singh. He spoke to us about Computer Science and Engineering in a more general, big-picture way.
+
+Instead of jumping into technical topics, he focused on helping us understand what CSE truly is—not just coding, but a vast field full of opportunities like AI, cybersecurity, data science, networking, and more. His words gave us a clearer view of how this branch shapes the modern world.
+
+Prof. Jaswant also shared some real-life examples and personal experiences, which made the session more relatable. His talk wasn’t just informative—it was motivating. It made us excited about the path we’ve chosen and curious to explore different domains within CSE.
+
+After Prof. Jaswant Singh’s inspiring session, we finally had a much-needed break. Everyone stepped out to stretch, grab a quick snack, and chat with friends.
+
+After the break, we all headed to the auditorium for the final set of lectures. The environment felt a bit more formal, but the sessions were equally informative and engaging. We listened, took notes, and gradually started getting more comfortable with this new routine of college life.
+
+As the lectures came to an end, so did the day. It had been a perfect blend of peer learning, expert guidance, and moments of reflection. Slowly but surely, each day was helping us grow—academically and personally.
+
+We left the auditorium with tired feet but curious minds, ready to take on whatever the next day had in store.
+
+# DAY 6 of college induction 
+
+As the day continued, we had an informative session with Dr. Randhir Singh Sir, who spoke to us about the conduction of college examinations. He explained the entire process—from internal assessments to final exams—and highlighted the importance of consistency, attendance, and preparation. His clear and structured explanation helped clear a lot of doubts and gave us a better idea of how to stay on track throughout the semester.
+
+Next, Dr. Amit Kamra introduced us to something more creative and career-oriented—the Digital Marketing Club. He explained how this club provides hands-on exposure to real-world marketing skills like content creation, SEO, social media strategies, and branding. His energy and passion for the subject made the session quite exciting, and many of us felt inspired to explore digital marketing as an additional skill.
+
+Following that, Dr. Parminder Singh took the stage to speak about college sports and other facilities. His talk reminded us that college isn’t just about academics—it’s also about staying active, finding balance, and enjoying our time here. From cricket and volleyball to gym facilities and inter-college tournaments, he encouraged all of us to take part in extracurriculars and make the most of what the campus offers
+
+After those insightful and engaging sessions, it was time for a well-deserved break. Everyone stepped out of the auditorium .
+
+After the break, we reassembled for another session of BEEE (Basic Electrical and Electronics Engineering) with Prof. Mandeep Kaur. This time, the session moved a step forward from the last one.
+
+We explored some new topics, while still revisiting a few familiar ones from the 12th-grade syllabus. Prof. Mandeep’s way of teaching made even the slightly complex concepts easy to follow.
+
+After the BEEE session, we headed to the TCC Seminar Hall for our ID card formation process.From getting our photos clicked to verifying our details, the process was smooth and well-organized. 
+
+And with that, the day slowly came to an end. Another day well spent, another step forward in this journey.
+
+
+
+
