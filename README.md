@@ -34,7 +34,8 @@ After that Dr. Priya Darshini mam gave an interactive session on UNIVERSAL HUMAN
 She gave interactive session on right understanding, physical facility and relationships. She interacted with the students on the universal human values which are needed for any person to live in this society . She talked with us regarding our goals and how to achieve them . She talked about the hapinness and prosperity . She made us learn that not only earning money makes a person happy in the life . Also the moral values, family , friends , and most importantly a good health is needed to become happy and prosperous in our life . Ultimately after every step , one have only a goal to be success with the happiness and prosperity continuously in his/her life .
 With this amazing lesson , she finished her session . 
 After all this , HOD Harpreet Kaur mam guided the students to do hard work , learn new concepts and attend all the important sessions . 
-With all this we ended with all te sessions and rushed out of the auditorium . 
+With all this we ended with all te sessions and rushed out of the auditorium .
+
 # Day 4 of college induction program 
 On the day 4 of college induction program , all the students gathered in the TCC Seminar Hall according to thier schedule . Our first interaction was with the DR. Rajvir Kaur Mam , who was having our chemistry session . We started with an interactive session . Dr. Rajvir Kaur ma’am made the session truly engaging by sparking curiosity about the future of engineering. She didn’t just talk about general knowledge – she asked questions, shared real-life examples, and made us think about what skills will matter most in the coming years. From problem-solving and critical thinking to adaptability and innovation, her words reminded us that being an engineer is not just about technical knowledge, but about being creative, curious, and ready to learn every day. She really encouraged the students to solve real life problems and focus more on the skills than only the theory. 
 
@@ -51,3 +52,24 @@ One member strummed the guitar and sang a soulful song that instantly set the vi
 After the performances, one of our teachers grabbed our attention with a super useful session on what to check before buying a laptop. Instead of just listing points, the discussion felt like a friendly conversation where we could ask our doubts freely.
 
 They explained important factors like processor speed, RAM, storage type (HDD vs SSD), battery backup, and even the weight for portability. We also learned why the operating system matters and how to choose based on our needs—whether for programming, gaming, or everyday use. The best part? They shared practical tips on avoiding common mistakes students make, like focusing only on looks instead of performance. It was one of those sessions where everyone was secretly making a mental checklist for their future laptop!
+
+# DAY 5 of college induction 
+
+Our English lecture with Prof. Manjot Kaur turned out to be more than just a regular class—it felt like a warm welcome into the world of college learning. Right from the start, she made sure everyone felt included by asking each of us to introduce ourselves in front of the whole class. While some of us were nervous, she gently encouraged us, saying, “Don’t worry, this is just the beginning—we’ll work together to overcome stage fear.”
+
+It wasn’t just about introductions though. She also walked us through the syllabus for the first year, explaining what we’d be learning and how it would help us improve our communication skills. The way she spoke made the course sound exciting, not scary. Her friendly attitude and smile definitely helped break the ice and made us all feel a bit more confident about speaking up in class.
+
+After that, Prof. Rajbir Kaur took over the class for a short but crisp Maths session. Her calm and approachable style made it easy to settle into the subject.
+
+She didn’t dive straight into heavy topics—instead, she took us through some basic concepts from our 12th-grade syllabus, just to brush up our memory. It felt more like a quick revision than a formal lecture, which made everyone feel relaxed. A few of us nodded along, recognizing familiar formulas, while others took the chance to ask doubts they had been carrying since school.
+
+Prof. Rajbir kept it light and said, “Don’t worry—we’ll build everything step by step. This is just the beginning.” It was reassuring and made the idea of learning Maths in college feel a lot less intimidating.
+
+After that, we had a session on the Basics of Electrical and Electronics with Prof. Mandeep Kaur. She kept things simple and focused on brushing up concepts we had already learned back in class 12.
+
+Instead of diving into complicated theories, she revisited familiar topics—like current, voltage, resistance, and basic circuits—just to refresh our memory. It felt more like a gentle revision than a full lecture, which made it easy to follow and stress-free.
+
+Prof. Mandeep also gave us an idea of how these basics would later connect to more advanced topics in our course. Her calm and clear way of explaining helped us feel comfortable and ready to take on what’s coming next in the subject.
+
+As we packed up and left for the day, there was a quiet sense of progress in the air. Another day ticked off in our college journey, and we were one step closer to becoming more confident and capable.
+
